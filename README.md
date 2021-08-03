@@ -1,0 +1,1 @@
+# yasiki_type01
